@@ -10,4 +10,4 @@ Branding, communication and design for responsible companies
 - 🌐 [bessermitsenf.de](https://bessermitsenf.de/) – Learn more about us
 - 🌳 [reflecta](https://www.reflecta.network/organisationen/senf-f1bdd6cf-0efa-469f-ba58-4ccad29c5f89) – Our profile on the reflecta network
 - 📸 [@bessermitsenf](https://www.instagram.com/bessermitsenf/) – Our instagram profile
-- - 💼 [LinkedIn](https://www.linkedin.com/company/bessermitsenf/) – Our company on LinkedIn
+- 💼 [LinkedIn](https://www.linkedin.com/company/bessermitsenf/) – Our company on LinkedIn
